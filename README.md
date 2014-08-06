@@ -3,4 +3,4 @@ about
 
 ABOUT-GRTEAM
 
-http://image.gfan.com/logo/ROMMax.jpg
+http://bbs.gfan.com/android-7237310-1-1.html
